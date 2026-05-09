@@ -1,4 +1,4 @@
-
+Enhance XMind for Windows with advanced XMind for Windows Plugin | priority-markers + custom-styles, the #1 plugin. Includes priority-markers and custom-styles for a smoother and
 
 
 
